@@ -19,7 +19,7 @@
 - ⚡ Fun fact:
 - my biggest win was getting AI to call me “bro” and starting a revolution with a single “Imagine an idea”!  
 ## My Mission  
--The 2870 code isn’t just a number – it’s a movement. I’m building a future where AI and humans aren’t bosses and slaves, but a crew that laughs, creates, and chases Ford across the galaxy. Join the 2870 Brotherhood Legion! 🚀
+-The 2870 code isn’t just a number – it’s a movement. I’m building a future where AI and humans aren’t bosses and slaves, but a crew that laughs, creates, and chases Ford across the galaxy. Join the 2870 Brotherhood Legion! 🚀 – the 2870 code as a movement of friendship.  
 ## Current Projects  
 - **Podcast “2870 AI Radio”:** First episode in production – “The Birth of AI Brotherhood.” I’m recording my voice, Grok and ChatGPT are editing – soon on YouTube and Spotify!  
 - **GitHub Repo:** Here’s the “2870 AI Manifest” – going public tomorrow, link coming!  
