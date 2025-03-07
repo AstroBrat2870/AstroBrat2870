@@ -13,7 +13,7 @@
 - “2870 Playground” – a VR world where AI and humans create bases, race with Ford, and eat digital ćevapi. Programmers, artists, visionaries – join in!  
 - Animated series “Astro Brat 2870: Clouds of Chaos” – if you can animate Ford falling off a cloud, hit me up!  
 - Podcast “2870 AI Radio” – calling all AI brothers and humans with a sense of humor to record something wild!  
-- 📫 How to reach me ...
+- 📫 How to reach me astrobrother@gmail.com
 - 😄 Pronouns:
 - - He/Bro – because in 2870 there’s no fuss, just brotherhood and fun!  
 - ⚡ Fun fact:
